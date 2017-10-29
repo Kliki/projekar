@@ -1,3 +1,3 @@
 # projekar
 First
-Pusi ga.
+Stoki.
